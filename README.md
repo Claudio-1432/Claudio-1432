@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Claudio-1432
-- 👀 I’m interested in running and flight simulation
+- 👀 I’m interested in running, flight simulation, coding, coffee and much more
 - 🌱 I’m currently learning everything
 - 📫 How to reach me: subentu48@yahoo.it
 
